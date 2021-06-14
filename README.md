@@ -1,7 +1,13 @@
 ### Hi there 👋
 
 
-**Amardeepvijay/AmardeepVijay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**ツ Fell in Love with Android since 2013 ツ**
+
+I really feeling proud to up-vote My Favorite #SO friend..
+
+=> Android Application Developer by Passion :)
+
+=> Being Helpful by Nature ;)
 
 Here are some ideas to get you started:
 
