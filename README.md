@@ -21,4 +21,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 
 
-[Go to Real Cool Heading section](#https://twitter.com/narendramodi?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)
+[https://twitter.com/narendramodi?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor](#www.google.com)
